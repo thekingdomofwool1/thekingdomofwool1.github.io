@@ -73,7 +73,7 @@ If this policy changes materially, the updated version will be posted at this UR
 
 If you have questions or concerns about this privacy policy, please contact:
 
-[privacy@tourguide.app](mailto:privacy@tourguide.app)
+[andrewgwoolman@gmail.com](mailto:andrewgwoolman@gmail.com)
 
 ---
 
